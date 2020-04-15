@@ -1,0 +1,2 @@
+# surito-resolusi
+perjalanan hidup
